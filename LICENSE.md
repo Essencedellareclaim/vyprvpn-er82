@@ -1,4 +1,4 @@
-
+Get the ultimate VyprVPN plugin with professional VyprVPN Plugin | 24/7-support + smart-DNS. Featuring 24/7-support and smart-DNS, it's the best choice for secure and private
 
 
 
